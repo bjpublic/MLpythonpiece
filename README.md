@@ -6,7 +6,7 @@
 정가: 24,000원<br>
 페이지: 348<br>
 
-구매 링크
+구매 링크<br>
 [예스24](http://www.yes24.com/Product/Goods/87663679)<br>
 [교보문고](http://www.kyobobook.co.kr/product/detailViewKor.laf?ejkGb=KOR&mallGb=KOR&barcode=9791190014755&orderClick=LAG&Kc=)<br>
 [알라딘](http://aladin.kr/p/RW2eD)<br>
